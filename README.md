@@ -1,1 +1,0 @@
-# iidxgod.github.io
